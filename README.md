@@ -1,1 +1,1 @@
-# DQ1Q17_Informatikai_Rendszrek-
+
